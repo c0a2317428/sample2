@@ -1,3 +1,5 @@
+[![Watch on YouTube](https://img.youtube.com/vi/o0aohbddTHY/0.jpg)](https://www.youtube.com/watch?v=o0aohbddTHY)
+
 # マークダウンで書いたページ
 ⼈⽣は、⽣きてるだけで丸儲け、争わない、楽しみ、チャレンジするそれで、⼈の役に⽴てれば最⾼!
 ## 中野信⼦⽒「⽣きてるだけで丸儲け」は⽣物学的にも正しい
